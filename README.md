@@ -7,4 +7,4 @@
 - 📫 How to reach me: pasindumap@gmail.com
 - ⚡ Fun fact: Hello Computers!! 💻💻
 
-![Alt Text](https://giphy.com/embed/PxSFAnuubLkSA)
+![Alt Text](https://media.giphy.com/media/PxSFAnuubLkSA/source.gif)
